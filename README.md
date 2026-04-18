@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👑 About Me:
 🔭I'm currently not working on any project.<br>🫂I'm looking to collaborate on innovative AI and ML ideas
 
 
